@@ -8,9 +8,9 @@
 
 
 
-- HOW TO SUPPORT 
-- like
-- follow 
-- buy me a coffee
+- HOW TO SUPPORT 👍🌌
+- like👍
+- follow 👍
+- buy me a coffee👍🌠
 https://www.buymeacoffee.com/anonsite
 
